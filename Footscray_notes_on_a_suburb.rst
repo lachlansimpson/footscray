@@ -26,9 +26,9 @@ In the House
   worm farm (near the roller door) for your food waste. Bokashi can take 
   protein and onions etc. Bokashi mix in blue lidded box next to bokashi bin.
 
-- Next door is *Stuart* and *Dooreen* and their grown children Eric, Ashley and
-  Pearly. They are super friendly and helpful - great neighbours. Stuart is a 
-  rower, and often gets up before sun to row. He is a used car salesman, so
+- Next door is **Stuart** and **Dooreen** and their grown children Eric, Ashley 
+  and Pearly. They are super friendly and helpful - great neighbours. Stuart is 
+  a rower, and often gets up before sun to row. He is a used car salesman, so
   there are lots of cars all over the place. You can use the carpark or the 
   driveway as you need, but if there's a car in the spot, just knock on their
   door and ask them to move one.   
@@ -83,51 +83,51 @@ Indian
 
 (West Footscray is a 25 minute walk, a $10 cab ride)
 
-*Aangan* - excellent Indian restaurant in West Footscray. Recommended.
+**Aangan** - excellent Indian restaurant in West Footscray. Recommended.
 - http://aangan.com.au/
 - http://aangan.com.au/west-footscray-menu/
 - menu on fridge
 
-*Dosa Hut* http://www.dosahut.net.au/our-locations/dosa-hut-footscray/
+**Dosa Hut** http://www.dosahut.net.au/our-locations/dosa-hut-footscray/
 
-*Dosa Corner* - good Dosa in West Footscray, across the road from each other
+**Dosa Corner** - good Dosa in West Footscray, across the road from each other
 http://www.thedosacorner.com.au/
   
 
 Cafes
 -----
 
-- Hey Zeus - in Footscray Market, across the road from Foostray Station bike
-  racks. Best Coffee in the area, consistently. Almond milk and Soy 
-  available. Not open on Sundays. Recommended.
+**Hey Zeus** - in Footscray Market, across the road from Foostray Station bike
+racks. Best Coffee in the area, consistently. Almond milk and Soy available. 
+Not open on Sundays. Recommended.
 
-- Footscray Milking Station - acceptable coffee, breakfast/lunch. Veggie 
-  options. Open 7 days. Footscray, other side of the train line.
+**Footscray Milking Station** - acceptable coffee, breakfast/lunch. Veggie 
+options. Open 7 days. Footscray, other side of the train line.
    
-- Happy River Cafe - a little further along from the Milking Station. A real
-  "wholefoods" vibe. Coffee is ok, food comes in quantity and is standard 90s
-  cafe fare.
+**Happy River Cafe** - a little further along from the Milking Station. A real
+"wholefoods" vibe. Coffee is ok, food comes in quantity and is standard 90s
+cafe fare.
    
-- The French Baguette - a large Vietnamese bakery. Coffee is passable. Lots of
-  cakes etc. Open 365 days. Does Vietnamese Rolls, but not tofu ones.
-  Corner of Albert and Barkly St, Footscray.
+**The French Baguette** - a large Vietnamese bakery. Coffee is passable. Lots of
+cakes etc. Open 365 days. Does Vietnamese Rolls, but not tofu ones.
+Corner of Albert and Barkly St, Footscray.
 
-- Rudimentary. Very (too) hip. Coffee is so-so - never consitent. Once I've 
-  had great coffee, three times it's been appalling. Also: very weak 
-  vegetarian options and a "no changes to menu" policy. Avoid, included for 
-  completeness.
+**Rudimentary** Very (too) hip. Coffee is so-so - never consitent. Once I've 
+had great coffee, three times it's been appalling. Also: very weak 
+vegetarian options and a "no changes to menu" policy. Avoid, included for 
+completeness.
    
-- Advieh/Little Advi. One (Advi) in Yarraville proper, one halfway between YV
-  and Seddon. Hugely busy, fantastic food, lots of options, fantastic 
-  coffee. Recommended. Middle Eastern vibe, veggie and vegan well catered
-  https://www.advieh.com.au/
+**Advieh**/**Little Advi** - One (Advi) in Yarraville proper, one halfway between YV
+and Seddon. Hugely busy, fantastic food, lots of options, fantastic 
+coffee. Recommended. Middle Eastern vibe, veggie and vegan well catered
+https://www.advieh.com.au/
     
-- Lady Moustache. Across the road from Advieh in Gamon St. Also has good 
-  coffee and an excellent, veggie friendly, menu. Local people, great vibe. A
-  Latin American vibe to the food. http://www.ladymoustache.com.au/
+**Lady Moustache** - Across the road from Advieh in Gamon St. Also has good 
+coffee and an excellent, veggie friendly, menu. Local people, great vibe. A
+Latin American vibe to the food. http://www.ladymoustache.com.au/
 
-- Yarraville central has lots of food and cafes. We also like The Cornershop
-  cafe across from the Sun Cinema.
+Yarraville central has lots of food and cafes. We also like **The Cornershop
+cafe** across from the **Sun Cinema**.
    
    
 Other assorted
@@ -189,15 +189,15 @@ Markets
 -------
 
 - Footscray Market is groovy, only has one deli though. Closed on Sundays, 
-   although the green grocer directly across from the station is 7 days and 
-   open til 6pm. It's veggies are cheap - but you really need to use them in 
-   48 hours or less; or freeze them.
+  although the green grocer directly across from the station is 7 days and 
+  open til 6pm. It's veggies are cheap - but you really need to use them in 
+  48 hours or less; or freeze them.
    
 - IGA on the corner of Ballarat Rd and Gordon road (3 minute walk from house) 
-   is relatively comprehensive if a little expensive. Note that their veggies 
-   are *terrible*.
+  is relatively comprehensive if a little expensive. Note that their veggies 
+  are *terrible*.
    
 - Coles in Footscray, 4 mins from station. 
 
 - there is a fancy pants supermarket in Yarraville, and a much bigger and 
-   better IGA.
+  better IGA.
