@@ -13,6 +13,8 @@ In the House
  - back door sometimes needs a wiggle.
  - please water the plants (upstairs: bathroom, study; downstairs: front and 
     back yard.) Don't worry if something dies. It's a plant.
+ - even if it's been raining, please check garden bed under kitchen window - 
+    it's protected from sun and rain just a little too well.
  - Cleaning stuff in laundry cupboard, but don't go too crazy. HOLIDAY.
  - We don't have a favourite bathroom.
  - Sleep in either room.
@@ -22,7 +24,7 @@ In the House
  - Bins out on Thursday night.
  - If you cook, there is a bokashi bin in the garage (behind the door) and a 
     worm farm (near the roller door) for your food waste. Bokashi can take 
-    protein and onions etc. 
+    protein and onions etc. Bokashi mix in blue lidded box next to bokashi bin.
  
  - Next door is Stuart and Dooreen and their grown children Eric, Ashley and 
     Pearly. They are super friendly and helpful - great neighbours. Stuart is a
@@ -86,8 +88,8 @@ Indian
    - http://aangan.com.au/west-footscray-menu/
  
  - Dosa Hut
-   - http://aangan.com.au/west-footscray-menu/
-
+   - http://www.dosahut.net.au/our-locations/dosa-hut-footscray/
+ 
  - Dosa Corner - good Dosa in West Footscray, across the road from each other
    - http://www.thedosacorner.com.au/
    
