@@ -71,6 +71,33 @@ To Highpoint
 - Tram takes about 10 minutes.
 - Can be walked in 30 mins.
 
+
+-----------
+The Station
+-----------
+
+Footscray is on the following lines: 
+
+- Williamstown
+- Werribe
+
+These two will arrive on Platform 5, you will need to walk through the station 
+to get to the tram. Getting on the third carriage gets you off at the ticket 
+stalls.
+
+This is the best way to get to Yarraville - it's two stops down, about 4 
+minutes.
+
+
+- Sunbury
+- Watergardens
+
+These two arrive on Platform 2. Get on the first door of the second carriage
+to get off at the entry. This train goes through to Sunshine.
+
+
+
+
 Things around here
 ==================
 
@@ -200,3 +227,9 @@ Markets
 
 - there is a fancy pants supermarket in Yarraville, and a much bigger and 
   better IGA.
+
+Cinema
+------
+
+- Highpoint has a cinema
+- Yarraville has the Sun Cinema which is much nicer.
