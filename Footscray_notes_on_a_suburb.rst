@@ -5,33 +5,33 @@ Welcome to Footscray!
 In the House
 ============
 
- - Please water the plants
- - Please make it your home
- - Towels are in the upstairs bathroom drawers
- - Linen is in the chest at the end of the bed
- - eat/drink anything in the cupboards
- - back door sometimes needs a wiggle.
- - please water the plants (upstairs: bathroom, study; downstairs: front and 
-    back yard.) Don't worry if something dies. It's a plant.
- - even if it's been raining, please check garden bed under kitchen window - 
-    it's protected from sun and rain just a little too well.
- - Cleaning stuff in laundry cupboard, but don't go too crazy. HOLIDAY.
- - We don't have a favourite bathroom.
- - Sleep in either room.
- - light will filter into master bedroom from study and second bedroom in the 
-    morning unless you close their curtians, or the door, or get up before the 
-    sun.
- - Bins out on Thursday night.
- - If you cook, there is a bokashi bin in the garage (behind the door) and a 
-    worm farm (near the roller door) for your food waste. Bokashi can take 
-    protein and onions etc. Bokashi mix in blue lidded box next to bokashi bin.
- 
- - Next door is Stuart and Dooreen and their grown children Eric, Ashley and 
-    Pearly. They are super friendly and helpful - great neighbours. Stuart is a
-    rower, and often gets up before sun to row. He is a used car salesman, so 
-    there are lots of cars all over the place. You can use the carpark or the 
-    driveway as you need, but if there's a car in the spot, just knock on their
-    door and ask them to move one.   
+- Please water the plants
+- Please make it your home
+- Towels are in the upstairs bathroom drawers
+- Linen is in the chest at the end of the bed
+- eat/drink anything in the cupboards
+- back door sometimes needs a wiggle.
+- please water the plants (upstairs: bathroom, study; downstairs: front and 
+   back yard.) Don't worry if something dies. It's a plant.
+- even if it's been raining, please check garden bed under kitchen window - 
+   it's protected from sun and rain just a little too well.
+- Cleaning stuff in laundry cupboard, but don't go too crazy. HOLIDAY.
+- We don't have a favourite bathroom.
+- Sleep in either room.
+- light will filter into master bedroom from study and second bedroom in the 
+   morning unless you close their curtians, or the door, or get up before the 
+   sun.
+- Bins out on Thursday night.
+- If you cook, there is a bokashi bin in the garage (behind the door) and a 
+   worm farm (near the roller door) for your food waste. Bokashi can take 
+   protein and onions etc. Bokashi mix in blue lidded box next to bokashi bin.
+
+- Next door is Stuart and Dooreen and their grown children Eric, Ashley and 
+   Pearly. They are super friendly and helpful - great neighbours. Stuart is a
+   rower, and often gets up before sun to row. He is a used car salesman, so 
+   there are lots of cars all over the place. You can use the carpark or the 
+   driveway as you need, but if there's a car in the spot, just knock on their
+   door and ask them to move one.   
 
 
 Getting around here
