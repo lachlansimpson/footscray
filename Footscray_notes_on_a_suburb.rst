@@ -86,7 +86,8 @@ Indian
  - Aangan - excellent Indian restaurant in West Footscray. Recommended.
    - http://aangan.com.au/
    - http://aangan.com.au/west-footscray-menu/
- 
+   - menu on fridge
+
  - Dosa Hut
    - http://www.dosahut.net.au/our-locations/dosa-hut-footscray/
  
@@ -136,8 +137,9 @@ Other assorted
 Pizza: Domenicos. Menu is on the fridge, great pizza. From the Gourment section:
         I like the Garden Vego, Fiona doesn't. We both like The Florentine, 
         Tuscan Style, Gourmet Margarita. Their garlic pizza is also good, with 
-        or without cheese, and the plain Margarita. They deliver.
-        
+        or without cheese, and the plain Margarita. They deliver, every day 
+        except Monday. Menu on fridge.
+
 Vietnamese: Hao Phong 136 Hopkins Street, Footscray. Recommend: Cheap and 
         Cheerful, fast service. Vietnamese coleslaw with Tofu; salt and pepper 
         tofu; Clay hotpot with tofu and vegetables ( we have it with black 
