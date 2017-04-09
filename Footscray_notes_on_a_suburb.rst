@@ -43,13 +43,13 @@ To the House
 
 - 15/20 min walk from Station
 - Tram is about 6 minutes. Get off on Gordon St (across from the bottlo, just 
-   around the corner after the McDonalds)
+  around the corner after the McDonalds)
 - Bus route 406 (goes to HP but slow) from station, stop outside Rope Factory 
-   or McDonalds on Ballarat Road
+  or McDonalds on Ballarat Road
 - Bus route 409, from station. Yarraville to HP
 - Taxi - most Indian taxi drivers have lived on Eldridge St at some point. 
-   They know where to go and how to get here. About $35-40 from the city or 
-   Brunswick 
+  They know where to go and how to get here. About $35-40 from the city or 
+  Brunswick 
 
 
 ---------------
@@ -58,8 +58,8 @@ To the station
 
 - Footscray Station is a roughly 15-20 minute walk down Droop st.
 - The tram runs every 10-20 mins depending on the day, and takes you to 
-   Footscray Station in 5-6 minutes from the Gordon St stop. Closest stop
-   is a right turn into Kinnear St and straight ahead (3 mins walk).
+  Footscray Station in 5-6 minutes from the Gordon St stop. Closest stop
+  is a right turn into Kinnear St and straight ahead (3 mins walk).
 - Bus route 406 from just near McDonalds, 5 mins. On Ballarat Road
 - Bus route 409 stops on Gordon St
 
