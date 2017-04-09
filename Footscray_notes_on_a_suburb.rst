@@ -134,33 +134,32 @@ Other assorted
 --------------
 
 Pizza: Domenicos. Menu is on the fridge, great pizza. From the Gourment section:
-        I like the Garden Vego, Fiona doesn't. We both like The Florentine, 
-        Tuscan Style, Gourmet Margarita. Their garlic pizza is also good, with 
-        or without cheese, and the plain Margarita. They deliver, every day 
-        except Monday. Menu on fridge.
+I like the Garden Vego, Fiona doesn't. We both like The Florentine, 
+Tuscan Style, Gourmet Margarita. Their garlic pizza is also good, with 
+or without cheese, and the plain Margarita. They deliver, every day 
+except Monday. Menu on fridge.
 
 Vietnamese: Hao Phong 136 Hopkins Street, Footscray. Recommend: Cheap and 
-        Cheerful, fast service. Vietnamese coleslaw with Tofu; salt and pepper 
-        tofu; Clay hotpot with tofu and vegetables ( we have it with black 
-        bean, rice is crunchy from being baked onto bottom of pot, #65). Also try 
-        the Fresh Lemon Juice with Soda (#170) or the iced vietnamese coffee 
-        (#177 or #178). Closed on Wednesdays.
+Cheerful, fast service. Vietnamese coleslaw with Tofu; salt and pepper 
+tofu; Clay hotpot with tofu and vegetables ( we have it with black 
+bean, rice is crunchy from being baked onto bottom of pot, #65). Also try 
+the Fresh Lemon Juice with Soda (#170) or the iced vietnamese coffee 
+(#177 or #178). Closed on Wednesdays.
 
 Vietnamese: Sapa Hills. A little more expensive, and a little more inventive, 
-        than Hao Phong. Super tasty. Sometimes a little too clever and can get 
-        busy.
+than Hao Phong. Super tasty. Sometimes a little too clever and can get busy.
 
 Vietnamese Bakery: There are two on Hopkins near the top end of Leeds st. Both 
-        do a decent tofu vietnamese roll. I prefer the one next to the duck 
-        restaurant. Both do a decent iced Vietnamese coffee too.
+do a decent tofu vietnamese roll. I prefer the one next to the duck 
+restaurant. Both do a decent iced Vietnamese coffee too.
         
 Ethiopian: Cafe Lalibela. Ethiopian is very vegan friendly and the Vegetarian 
-        platter for two is excellent. Super cheap for what you get. Can take a 
-        while to be served if you ime it wrong - watch for big tables and order
-        before them!
-        
+platter for two is excellent. Super cheap for what you get. Can take a 
+while to be served if you ime it wrong - watch for big tables and order
+before them!
+       
 Vegan Tacos: The Reverence Hotel on Tuesday nights does $3 vegan tacos. Short 
-        walk on the other side of the station/tracks.
+walk on the other side of the station/tracks.
         
 Lentil as Anything: For your pay what you want veggie meal. Barkley St. 
 
@@ -168,22 +167,22 @@ Lentil as Anything: For your pay what you want veggie meal. Barkley St.
 Bars and the etc
 ----------------
 
-Dancing Dog Cafe: Lots of tiny rooms, nice atmosphere. A little grungy. Near 
-    Lalibela/Coles/Footscray Station.
+**Dancing Dog Cafe** - Lots of tiny rooms, nice atmosphere. A little grungy. Near 
+Lalibela/Coles/Footscray Station.
     
-Josphines: further along Barkley st, near Domenicos pizza (you can get the 
-    pizza delivered to the bar!). Brand spanking new, great range of beers, 
-    lovely atmosphere. A little more mature than the Dog.
+**Josphines** - further along Barkley st, near Domenicos pizza (you can get the 
+pizza delivered to the bar!). Brand spanking new, great range of beers, 
+lovely atmosphere. A little more mature than the Dog.
 
-Littlefoot bar: closer to Footscray central than Josephines, on Barkley. Nice 
-    enough, has a little jazz corner or acoustic bands sometimes. Acceptable
-    but prefer Josephines.
+**Littlefoot bar** - closer to Footscray central than Josephines, on Barkley. Nice 
+enough, has a little jazz corner or acoustic bands sometimes. Acceptable
+but prefer Josephines.
 
-Back Alley Sally: does both Pizza and bar. Back alley vibe. Near station, other
-    side of tracks.
+**Back Alley Sally** - does both Pizza and bar. Back alley vibe. Near station, other
+side of tracks.
 
-Reverence: old school pub style with meals and bands and big beer garden. Other
-    side of tracks.
+**Reverence** - old school pub style with meals and bands and big beer garden. Other
+side of tracks.
     
 Markets
 -------
