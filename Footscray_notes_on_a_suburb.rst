@@ -26,7 +26,7 @@ In the House
   worm farm (near the roller door) for your food waste. Bokashi can take 
   protein and onions etc. Bokashi mix in blue lidded box next to bokashi bin.
 
-- Next door is Stuart and Dooreen and their grown children Eric, Ashley and 
+- Next door is *Stuart* and *Dooreen* and their grown children Eric, Ashley and
   Pearly. They are super friendly and helpful - great neighbours. Stuart is a 
   rower, and often gets up before sun to row. He is a used car salesman, so
   there are lots of cars all over the place. You can use the carpark or the 
@@ -83,16 +83,15 @@ Indian
 
 (West Footscray is a 25 minute walk, a $10 cab ride)
 
-- Aangan - excellent Indian restaurant in West Footscray. Recommended.
-  - http://aangan.com.au/
-  - http://aangan.com.au/west-footscray-menu/
-  - menu on fridge
+*Aangan* - excellent Indian restaurant in West Footscray. Recommended.
+- http://aangan.com.au/
+- http://aangan.com.au/west-footscray-menu/
+- menu on fridge
 
-- Dosa Hut
-  - http://www.dosahut.net.au/our-locations/dosa-hut-footscray/
+*Dosa Hut* http://www.dosahut.net.au/our-locations/dosa-hut-footscray/
 
-- Dosa Corner - good Dosa in West Footscray, across the road from each other
-  - http://www.thedosacorner.com.au/
+*Dosa Corner* - good Dosa in West Footscray, across the road from each other
+http://www.thedosacorner.com.au/
   
 
 Cafes
