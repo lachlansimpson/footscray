@@ -12,15 +12,15 @@ In the House
 - eat/drink anything in the cupboards
 - back door sometimes needs a wiggle.
 - please water the plants (upstairs: bathroom, study; downstairs: front and 
-   back yard.) Don't worry if something dies. It's a plant.
+  back yard) Don't worry if something dies. It's a plant.
 - even if it's been raining, please check garden bed under kitchen window - 
-   it's protected from sun and rain just a little too well.
+  it's protected from sun and rain just a little too well.
 - Cleaning stuff in laundry cupboard, but don't go too crazy. HOLIDAY.
 - We don't have a favourite bathroom.
 - Sleep in either room.
 - light will filter into master bedroom from study and second bedroom in the 
-   morning unless you close their curtians, or the door, or get up before the 
-   sun.
+  morning unless you close their curtians, or the door, or get up before the 
+  sun.
 - Bins out on Thursday night.
 - If you cook, there is a bokashi bin in the garage (behind the door) and a 
    worm farm (near the roller door) for your food waste. Bokashi can take 
